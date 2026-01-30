@@ -15,4 +15,4 @@ I don't bite! Come say hi
 
 Watch Horse Race Tests, play Umamusume, binge My Little Pony, listen to horsegiirL, always bet on losing horses, join a regiment
 
-![picmix com_12850796](https://github.com/user-attachments/assets/f6c01d37-fe91-48c1-9263-61e000fb8d43)
+![picmix com_12850796](https://github.com/user-attachments/assets/ca344a6b-2f34-4c94-ab2c-f2ebf1a93442)
