@@ -1,4 +1,4 @@
-## Superstitional Realism | BASIC REGIMENT GUIDEBOOK LINKED UNDER MY PROFILE.
+![lastunicornquote](https://github.com/user-attachments/assets/b7e9018f-298a-4e84-b3bf-b7528ee45343)## Superstitional Realism | BASIC REGIMENT GUIDEBOOK LINKED UNDER MY PROFILE.
 Hello! My name is Superstitional Realism but you can call me Realism for short.
 
 Adult | She/He | Lesbian | Horse
@@ -9,7 +9,7 @@ Adult | She/He | Lesbian | Horse
 
 ★ I've been in the community since 2020 and I could discuss various regiment topics for hours. I no longer actively participate in regiments unless one particularly interests me, but I'm open to assisting regiments who are trying to start up or any regimental projects in general. My DMs are also always open to discuss regimental topics or situations in depth. I love helping out where I can. 
 
-[https://findingfaeries.wordpress.com/wp-content/uploads/2015/03/lastunicornquote.gif]
+![lastunicornquote](https://github.com/user-attachments/assets/1799274c-977b-4497-96b1-b9b766239c27)
 
 ☆ Despite my very strong opinions on certain matters, I am always happy to recieve constructive criticism and feedback. I like to think I'm a very open-minded person and if I have a differing viewpoint on something than you, I don't understand something, or only have one side of a story, please feel free to educate me. I'm always willing to have respectful discussions and debates about things. 
 
