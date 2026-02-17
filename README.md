@@ -1,4 +1,4 @@
-![lastunicornquote](https://github.com/user-attachments/assets/b7e9018f-298a-4e84-b3bf-b7528ee45343)## Superstitional Realism | BASIC REGIMENT GUIDEBOOK LINKED UNDER MY PROFILE.
+## Superstitional Realism | BASIC REGIMENT GUIDEBOOK LINKED UNDER MY PROFILE.
 Hello! My name is Superstitional Realism but you can call me Realism for short.
 
 Adult | She/He | Lesbian | Horse
