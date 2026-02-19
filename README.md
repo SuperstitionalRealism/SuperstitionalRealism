@@ -11,7 +11,7 @@ Adult | She/He | Lesbian | Horse
 
 ![lastunicornquote](https://github.com/user-attachments/assets/1799274c-977b-4497-96b1-b9b766239c27)
 
-## MY BOUNDARIES AND OTHER RELEVANT INFORMATION.
+## MY BOUNDARIES, BELIEFS, AND OTHER INFORMATION.
 
 ☆ Despite my very strong opinions on certain matters, I am always happy to recieve constructive criticism and feedback. I like to think I'm a very open-minded person and if I have a differing viewpoint on something than you, I don't understand something, or only have one side of a story, please feel free to educate me. I'm always willing to have respectful discussions and debates about things. 
 
