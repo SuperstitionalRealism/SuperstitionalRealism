@@ -1,7 +1,7 @@
 ## Superstitional Realism | BASIC REGIMENT GUIDEBOOK LINKED UNDER MY PROFILE.
 Hello! My name is Superstitional Realism but you can call me Realism for short.
 
-Adult | She/He | Lesbian | Horse
+Adult | She/He | Lesbian | Horse & Horsegirl
 
 ★ I wrote a basic guidebook on regiments! I'd love if you gave it a look, especially if you're a new player or don't know too much about regiments. Even if you don't plan getting involved in the community, it has some information to provide you with some general knowledge on the community. 
 
