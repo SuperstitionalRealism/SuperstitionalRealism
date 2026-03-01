@@ -3,7 +3,7 @@ Hello! My name is Superstitional Realism but you can call me Realism for short.
 
 Adult | She/He | Lesbian | Horse & Horsegirl
 
-★ I wrote a basic guidebook on regiments! I'd love if you gave it a look, especially if you're a new player or don't know too much about regiments. Even if you don't plan getting involved in the community, it has some information to provide you with some general knowledge on the community. 
+★ I wrote a basic guidebook on regiments! I'd love if you gave it a look, especially if you're a new player or don't know too much about regiments. Even if you don't plan getting involved in the community, it has some information to provide you with some general knowledge on it. 
 
 ★ Ponytown regiments are my special interest. PLEASE ask me about them if you see me online or leave me something in my ata-book! Feel free to ask for advice, ask my opinions on regimental topics or specific groups, ask my opinion on certain controversies/situations/issues, start a RESPECTFUL debate with me, tell me about your own regiment experiences or memories (good or bad), or just leave a kind message. I respond to every message I get on my ata-book, even if it takes a couple of days. I like to put thought into my responses and be very mindful about what I say. 
 
