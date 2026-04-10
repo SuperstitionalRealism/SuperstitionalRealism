@@ -1,4 +1,4 @@
-## Superstitional Realism | BASIC REGIMENT GUIDEBOOK LINKED UNDER MY PROFILE.
+## Superstitional Realism | BASIC REGIMENT GUIDEBOOK & FTU BLACKLIST POLICY LINKED BESIDE MY PROFILE. | ![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2FSuperstitionalRealism&labelColor=%232ccce4&countColor=%23ffffff)
 Hello! My name is Superstitional Realism but you can call me Realism for short.
 
 Adult | She/He | Lesbian | Horse & Horsegirl
