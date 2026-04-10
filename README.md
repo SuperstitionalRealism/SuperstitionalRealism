@@ -1,4 +1,4 @@
-## Superstitional Realism | BASIC REGIMENT GUIDEBOOK & FTU BLACKLIST POLICY LINKED BESIDE MY PROFILE. | ![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2FSuperstitionalRealism&labelColor=%232ccce4&countColor=%23ffffff)
+## Superstitional Realism | BASIC REGIMENT GUIDEBOOK & FTU BLACKLIST POLICY LINKED BESIDE MY PROFILE. 
 Hello! My name is Superstitional Realism but you can call me Realism for short.
 
 Adult | She/He | Lesbian | Horse & Horsegirl
@@ -34,3 +34,5 @@ Adult | She/He | Lesbian | Horse & Horsegirl
 ☆ Watch Horse Race Tests, play Umamusume, binge My Little Pony, listen to horsegiirL, always bet on losing horses, join a regiment.
 
 ![picmix com_12850796](https://github.com/user-attachments/assets/ca344a6b-2f34-4c94-ab2c-f2ebf1a93442)
+
+[Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2FSuperstitionalRealism&labelColor=%232ccce4&countColor=%23ffffff)
