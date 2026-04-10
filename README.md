@@ -9,6 +9,8 @@ Adult | She/He | Lesbian | Horse & Horsegirl
 
 ★ I've been in the community since 2020 and I could discuss various regiment topics for hours. I no longer actively participate in regiments unless one particularly interests me, but I'm open to assisting regiments who are trying to start up or any regimental projects in general. My DMs are also always open to discuss regimental topics or situations in depth. I love helping out where I can. 
 
+[Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2FSuperstitionalRealism&labelColor=%232ccce4&countColor=%23ffffff)
+
 ![lastunicornquote](https://github.com/user-attachments/assets/1799274c-977b-4497-96b1-b9b766239c27)
 
 ## MY BOUNDARIES AND BYI.
@@ -34,5 +36,3 @@ Adult | She/He | Lesbian | Horse & Horsegirl
 ☆ Watch Horse Race Tests, play Umamusume, binge My Little Pony, listen to horsegiirL, always bet on losing horses, join a regiment.
 
 ![picmix com_12850796](https://github.com/user-attachments/assets/ca344a6b-2f34-4c94-ab2c-f2ebf1a93442)
-
-[Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2FSuperstitionalRealism&labelColor=%232ccce4&countColor=%23ffffff)
