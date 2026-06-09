@@ -7,7 +7,7 @@ Adult | She/He | Lesbian | Horse & Horsegirl
 
 ★ Ponytown regiments are my special interest. PLEASE ask me about them if you see me online or leave me something in my ata-book! Feel free to ask for advice, ask my opinions on regimental topics or specific groups, ask my opinion on certain controversies/situations/issues, start a RESPECTFUL debate with me, tell me about your own regiment experiences or memories (good or bad), or just leave a kind message. I respond to every message I get on my ata-book, even if it takes a couple of days. I like to put thought into my responses and be very mindful about what I say. 
 
-★ I've been in the community since 2020 and I could discuss various regiment topics for hours. I no longer actively participate in regiments but I'm open to assisting regiments who are trying to start up or any regimental projects in general. My DMs are also always open to discuss regimental topics or situations in depth. I love helping out where I can. 
+★ I've been in the community since 2020 and I could discuss various regiment topics for hours. I no longer actively participate in regiments and generally try to seperate myself from the greater community. However, if you would like to ask for my assistance on any regimental projects, privately ask me for any advice, or set up 1 on 1 contact with me for any reason, please ask through my atabook or send me an email at regimental.realism@gmail.com and I'll get back to you ASAP 
 
 ![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2FSuperstitionalRealism&labelColor=%232ccce4&countColor=%23ffffff)
 
