@@ -5,11 +5,19 @@ Adult | She/He | Lesbian | Horse & Horsegirl
 
 ★ I wrote a basic guidebook on regiments! I'd love if you gave it a look, especially if you're a new player or don't know too much about regiments. Even if you don't plan getting involved in the community, it has some information to provide you with some general knowledge on it. 
 
-★ Ponytown regiments are my special interest. PLEASE ask me about them if you see me online or leave me something in my ata-book! Feel free to ask for advice, ask my opinions on regimental topics or specific groups, ask my opinion on certain controversies/situations/issues, start a RESPECTFUL debate with me, tell me about your own regiment experiences or memories (good or bad), or just leave a kind message. I respond to every message I get on my ata-book, even if it takes a couple of days. I like to put thought into my responses and be very mindful about what I say. 
-
-★ I've been in the community since 2020 and I could discuss various regiment topics for hours. I no longer actively participate in regiments and generally try to seperate myself from the greater community. I do not privately interact with other individuals unless it is for strictly business purposes. However, if you would like to ask for my assistance on any regimental projects, privately ask me for any advice, or set up 1 on 1 contact with me for other reasons, please ask through my atabook, ping me in a shared server to ask to DM me, or send me an email at regimental.realism@gmail.com and I'll get back to you ASAP 
+★ Ponytown regiments are my special interest. I've been in the community since 2020 and I could discuss various regiment topics for hours. PLEASE ask me about them if you see me online or leave me something in my ata-book! Feel free to ask for advice, ask my opinions on regimental topics or specific groups, ask my opinion on certain controversies/situations/issues, start a RESPECTFUL debate with me, tell me about your own regiment experiences or memories (good or bad), or just leave a kind message. I respond to every message I get on my ata-book, even if it takes a couple of days. I like to put thought into my responses and be very mindful about what I say. 
 
 ![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2FSuperstitionalRealism&labelColor=%232ccce4&countColor=%23ffffff)
+
+## HOW TO CONTACT ME.
+
+★ I no longer actively participate in regiments and generally try to limit private interactions with other individuals off-ponytown unless it is for strictly business purposes. However, I am still open to assist with any regimental projects, give private regimental advice, and offer guidance regarding any situations occuring in the community. 
+
+★ My atabook and ponytown whispers are the best place to reach me, as I check them often. However, I always check my pings in regiment servers so if we have a shared server, you can absolutely ping me and talk to me there. I also have an email ( regimental.realism@gmail.com ) where I can be reached. 
+
+If you'd like to request a private conversation on discord with me, you absolutely and completely can. I only sk that you state who you are, your discord username, and what it is you'd like to discuss with me upfront in your message when you ask me. I'll always give you confirmation on if i'm willing to contact you or not. However, please keep in mind that if I friend you on discord for a specific purpose, as soon as that purpose is fullfilled, I'll unadd you right afterwards
+
+★ I have my discord friend requests open for emergancies only. Please do not try to friend me on discord unless you are in dire need of my assistance and/or you need my immediate assistance. I will accept any friend requests that I get out of the blue, however if it turns out to be a false alarm, I'll just straight up unadd you or kindly assist you and remind you of my policies depending on the situation. ALWAYS prioritize my atabook, shared servers, and ponytown whispers before anything else if you can help it
 
 ![lastunicornquote](https://github.com/user-attachments/assets/1799274c-977b-4497-96b1-b9b766239c27)
 
